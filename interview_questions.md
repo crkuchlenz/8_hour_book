@@ -52,6 +52,13 @@ Having to sit down with my project team and explain that, even though we have be
 12. What are some practical tips for setting clear priorities and focusing on what truly matters?
 - Begin with the end in mind
 - 7 pillars
+  - Mental
+  - Emotional
+  - Physical
+  - Environmental
+  - Spiritual
+  - Recreational
+  - Social
 13. How can someone shift their perspective from blaming external forces to taking ownership of their situation?
 - 
 14. What advice would you give to someone feeling overwhelmed by their external circumstances but wanting to focus on personal growth?
