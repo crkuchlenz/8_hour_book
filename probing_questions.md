@@ -1,6 +1,6 @@
 1. Can you share a bit about your background and what inspired you to focus on personal growth and mindset development?
-  a. What experiences in your life led you to identify the need for personal growth in others?
-  b. How have your own challenges shaped your understanding of mindset development?
+- What experiences in your life led you to identify the need for personal growth in others?
+- How have your own challenges shaped your understanding of mindset development?
 
 2. How did you become passionate about helping others develop accountability and clarity in their lives?
 a. Can you share a specific story or experience that highlighted this passion for you?
